@@ -1,5 +1,5 @@
 ✨ridvansit14@gmail.com
-✨send me e-mail about repos and find new things together :)
+✨send me e-mail about repos to create new ideas together :)
 
 <!---
 RIDVANSIT/RIDVANSIT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
